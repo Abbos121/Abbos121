@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Abbos121
 - 👀 I’m interested in coding, sport and reading books
-- 🌱 I’m currently working as Software Enginer
+- 🌱 I’m currently working as a Software Enginer
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me abbosakramov121@gmail.com
 - Telegram username : @Abbos_Akramov
